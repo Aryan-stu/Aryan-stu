@@ -1,4 +1,4 @@
-### Hi there 👋
+### ✨ _special_ ✨
 
 
 **Aryan-stu/Aryan-stu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
